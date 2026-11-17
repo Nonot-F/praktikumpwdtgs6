@@ -1,1 +1,0 @@
-"# praktikumpwdtgs6" 
